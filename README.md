@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **amr223489@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1NeR-El2QFlaMJyfgQlgmBV9_eoTqhXRH/view?usp=sharing](https://drive.google.com/file/d/1NeR-El2QFlaMJyfgQlgmBV9_eoTqhXRH/view?usp=sharing)
+- 📄 Know about my experiences [CV](https://drive.google.com/file/d/1NeR-El2QFlaMJyfgQlgmBV9_eoTqhXRH/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
